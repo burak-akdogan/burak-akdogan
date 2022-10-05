@@ -1,6 +1,6 @@
 ### Hello there!
 
-![](/Profile Pic Hello.gif)  
+![](/ProfilePicHello.gif)  
 
 
 
