@@ -1,6 +1,6 @@
 ### Hello there!
 
-![](/MeagerHardtofindAlbertosaurus-size_restricted.gif)  
+![](/Profile Pic Hello.gif)  
 
 
 
